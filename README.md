@@ -1,4 +1,4 @@
-Hi, I am a 14 year old who has no bitches. 
+
 I use all the programs I own for educational purposes only
 
 <!---
